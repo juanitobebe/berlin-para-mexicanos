@@ -1,4 +1,10 @@
-# berlin-para-mexicanos
+# México-para-mexicanos
 
 ## Despensa
-- http://www.chiliundpaprika.de/
+- https://www.soriana.com
+
+## Auto servicio
+- http://www.oxxo.com/
+
+## Tips para ahorrar
+- https://www.promodescuentos.com/
